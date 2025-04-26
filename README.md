@@ -8,4 +8,7 @@
 
 　✦　... ✦˚ . ★⋆. ࿐࿔ He/Him or any 　✦　... ✦˚ . ★⋆. ࿐࿔
 
-　✦　... ✦˚ . ★⋆. ࿐࿔ Read straw pls! 　✦　... ✦˚ . ★⋆. ࿐࿔
+　✦　... ✦˚ . ★⋆. ࿐࿔ Ask 4 C+H unless i have it in my name 　✦　... ✦˚ . ★⋆. ࿐࿔
+
+✦　... ✦˚ . ★⋆. ࿐࿔ Read straw pls! 　✦　... ✦˚ . ★⋆. ࿐࿔
+
