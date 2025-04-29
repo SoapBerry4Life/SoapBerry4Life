@@ -4,12 +4,11 @@
 
 
 
-　　✦　... ✦˚ . ★⋆. ࿐࿔ Oliver , Casper , Character cosplaying as rn 　✦　... ✦˚ . ★⋆. ࿐࿔
+　　✦　... ✦˚ . ★⋆. ࿐࿔ Sprout , Casper , Nix , Pup , Character cosplaying as rn 　✦　... ✦˚ . ★⋆. ࿐࿔
 
-　✦　... ✦˚ . ★⋆. ࿐࿔ He/Him or any 　✦　... ✦˚ . ★⋆. ࿐࿔
+　✦　... ✦˚ . ★⋆. ࿐࿔ He/Him & She/Her or any 　✦　... ✦˚ . ★⋆. ࿐࿔
 
 　✦　... ✦˚ . ★⋆. ࿐࿔ Ask 4 C+H unless i have it in my name 　✦　... ✦˚ . ★⋆. ࿐࿔
 
-✦　... ✦˚ . ★⋆. ࿐࿔ Read straw pls! 　✦　... ✦˚ . ★⋆. ࿐࿔
+✦　... ✦˚ . ★⋆. ࿐࿔ Anything important is said in my main @DesiredDreams 　✦　... ✦˚ . ★⋆. ࿐࿔
 
-https://soapaddicteds.straw.page
