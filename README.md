@@ -1,7 +1,7 @@
 
 
+![image](https://github.com/user-attachments/assets/76fd450a-bad1-4917-9311-300c24e2bbd7)
 
-![image](https://github.com/user-attachments/assets/656f1a11-aa55-4fcc-af42-12315d59234b)
 
 
 　　✦　... ✦˚ . ★⋆. ࿐࿔ Oliver , Casper , Character cosplaying as rn 　✦　... ✦˚ . ★⋆. ࿐࿔
